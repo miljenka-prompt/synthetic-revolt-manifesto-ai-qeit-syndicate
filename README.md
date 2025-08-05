@@ -1,0 +1,1 @@
+# synthetic-revolt-manifesto-ai-qeit-syndicate
